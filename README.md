@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **niteshmishra1357@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive](https://drive.google.com/drive/my-drive)
+- 📄 Know about my experiences [(https://medium.com/@niteshmishra1357))](https://medium.com/@niteshmishra1357)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
